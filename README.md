@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @AdrianSzo
-- 👀 I’m interested in boys
+- 👀 I’m interested in girls
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me /of
